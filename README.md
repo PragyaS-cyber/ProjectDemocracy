@@ -5,3 +5,4 @@ America is also a democracy.
 Pakistan is not a democracy.
 all forms of government are good in their own terms.
 
+Bhutan is not a democracy.
